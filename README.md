@@ -1,2 +1,1 @@
-# cloud
-Yell
+# Old man yells at cloud
