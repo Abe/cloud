@@ -1,1 +1,1 @@
-# Old man yells at ☁️
+# Old man yells at cloud
